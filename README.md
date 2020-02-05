@@ -1,1 +1,1 @@
-00-VANITY R
+Project Vanity
